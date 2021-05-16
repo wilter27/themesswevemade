@@ -40,3 +40,5 @@ Meow Wolf + Theaster Gates + Project Row House with coding inspo from High-Low T
 
 ## Current Progress Updates:
 ![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621177047023-MEYHZH1VGTB7VXXAYCX5/ke17ZwdGBToddI8pDm48kKXVfAt9LsIMjK8AwFWz8mV7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0k5fwC0WRNFJBIXiBeNI5fI78j0ts3A8z_ZgW0PCOxDSlJi3w2G5bqTleurr0wG3pA/IMG_2339.JPG?format=500w)
+
+![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621185078153-1PBWUJ6G7GWSLVUVW7IK/ke17ZwdGBToddI8pDm48kLGzfeTj89fNjhxKf4CBKKB7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z5QPOohDIaIeljMHgDF5CVlOqpeNLcJ80NK65_fV7S1UcTZBUdlJAIoZHlcWjl2BZ5jMJDXPRLjJkiAgjkQri3ubSexTd1-frD7527z4SM9QQ/Interactive+Wallpaper+Sketch.png?format=2500w)
