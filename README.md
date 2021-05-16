@@ -3,6 +3,8 @@
 
 My intentions of this project center around the process of analyzing the subjective and experiential process of living, collecting, and neglecting for the sake of it from an anti-humanist, non-positivist perspective.  It analyzes the price of living on and tending to hallowed ground while making space for a generative and collaborative future.  The project aims to examine the shoal of the garage to retrieve meaning and liberate us from the weight of our ancestral relationships with excessive material accumulation.
 
+[!](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621181835239-SRNE7P4U79NFWYO9L4ZS/ke17ZwdGBToddI8pDm48kFdVUPlyrTdrPBxuu3UraCVZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVFZfxY9qe4mEi0hw8UYHEOHyazhJRXt9UqluVyxUgyM5pu3E9Ef3XsXP1C_826c-iU/Screen+Shot+2021-04-17+at+11.45.49+AM.png?format=500w)
+
 ## Concepts for the areas of intervention:
 Interactive wallpaper with proximity sensor + lights/reusing the clutter lights.
 Seating arrangement of my dead grandma’s furniture.
@@ -35,3 +37,6 @@ Meow Wolf + Theaster Gates + Project Row House with coding inspo from High-Low T
 * Weheliye, A. G. (2014). Habeas Viscus: Racializing Assemblages, Biopolitics, and Black Feminist Theories of the Human. Duke University Press.  
 * Wilkins, C. L. (2007). The aesthetics of equity: notes on race, space, architecture, and music. University of MINNESOTA Press.  
 * Wynter, S., & McKittrick, K. (2015). Sylvia Wynter: On being human as praxis. Duke University Press Durham, NC.  
+
+## Current Progress Updates:
+[!](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621177047023-MEYHZH1VGTB7VXXAYCX5/ke17ZwdGBToddI8pDm48kKXVfAt9LsIMjK8AwFWz8mV7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0k5fwC0WRNFJBIXiBeNI5fI78j0ts3A8z_ZgW0PCOxDSlJi3w2G5bqTleurr0wG3pA/IMG_2339.JPG?format=500w)
