@@ -24,16 +24,19 @@ Flyvbjerg, B., BT Professor and Chair of Major Programme Management Bent Flyvbje
 Gosetti-Ferencei, J. A. (2018). The Life of Imagination: Revealing and Making the World. Columbia University Press.  
 Harney, S., & Moten, F. (2013). The undercommons: Fugitive planning and black study (E. Empson (ed.)). Minor Compositions.  
 Hooks, B. (2009). Belonging: A culture of place. Routledge.  
-Jacqui Alexander, M. (2006). Pedagogies of Crossing: Meditations on Feminism, Sexual Politics, Memory, and the Sacred. Duke University Press.  
+Jacqui Alexander, M. (2006). Pedagogies of Crossing: Meditations on Feminism, Sexual Politics, Memory, and the Sacred. Duke University 
+  Press.  
 King, T. L. (2019). The Black Shoals: Offshore Formations of Black and Native Studies. Duke University Press.  
 McHugh, N. A. (2015). The Limits of Knowledge: Generating Pragmatist Feminist Cases for Situated Knowing. SUNY Press.  
 McKittrick, K. (n.d.). Demonic Grounds: Black Women And the Cartographies of Struggle. U of Minnesota Press.  
 Rifkin, M. (2019). Fictions of Land and Flesh: Blackness, Indigeneity, Speculation. Duke University Press.  
 Rothstein, R. (2017). The Color of Law: A Forgotten History of How Our Government Segregated America. Liveright Publishing.  
-Sanchez-Jankowski, M. (2008). Cracks in the Pavement: Social Change and Resilience in Poor Neighborhoods. University of California Press.  
+Sanchez-Jankowski, M. (2008). Cracks in the Pavement: Social Change and Resilience in Poor Neighborhoods. University of California 
+  Press.  
 Sandercock, L. (2003). The power of story in planning. Cosmopolis II, Mongrel Cities in the 21st Century.  
 Sennett, R. (2018). Building and Dwelling: Ethics for the City. Farrar, Straus and Giroux.  
 Sutton, S., & Kemp, S. (2011). The Paradox of Urban Space: Inequality and Transformation in Marginalized Communities. Springer.  
-Weheliye, A. G. (2014). Habeas Viscus: Racializing Assemblages, Biopolitics, and Black Feminist Theories of the Human. Duke University Press.  
+Weheliye, A. G. (2014). Habeas Viscus: Racializing Assemblages, Biopolitics, and Black Feminist Theories of the Human. Duke University 
+  Press.  
 Wilkins, C. L. (2007). The aesthetics of equity: notes on race, space, architecture, and music. University of MINNESOTA Press.  
 Wynter, S., & McKittrick, K. (2015). Sylvia Wynter: On being human as praxis. Duke University Press Durham, NC.  
