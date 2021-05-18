@@ -39,6 +39,35 @@ Meow Wolf + Theaster Gates + Project Row House with coding inspo from High-Low T
 * Wynter, S., & McKittrick, K. (2015). Sylvia Wynter: On being human as praxis. Duke University Press Durham, NC.  
 
 ## Current Progress Updates:
-![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621177047023-MEYHZH1VGTB7VXXAYCX5/ke17ZwdGBToddI8pDm48kKXVfAt9LsIMjK8AwFWz8mV7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0k5fwC0WRNFJBIXiBeNI5fI78j0ts3A8z_ZgW0PCOxDSlJi3w2G5bqTleurr0wG3pA/IMG_2339.JPG?format=500w)
+Current iteration  
+[![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621317166554-MZ9QMEUVGJ4SQVFUSFPZ/ke17ZwdGBToddI8pDm48kA19RyzzBLTiAdxICwx0C5FZw-zPPgdn4jUwVcJE1ZvWQUxwkmyExglNqGp0IvTJZamWLI2zvYWH8K3-s_4yszcp2ryTI0HqTOaaUohrI8PIl-t5I3wgV9rzyywMwaDyIZpLx9KZo5UEEVSkRspqpM8/Screen+Shot+2021-05-17+at+10.51.40+PM.png?format=500w)](https://www.youtube.com/watch?v=5Nv4xvKRKXI)
 
-![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621185078153-1PBWUJ6G7GWSLVUVW7IK/ke17ZwdGBToddI8pDm48kLGzfeTj89fNjhxKf4CBKKB7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z5QPOohDIaIeljMHgDF5CVlOqpeNLcJ80NK65_fV7S1UcTZBUdlJAIoZHlcWjl2BZ5jMJDXPRLjJkiAgjkQri3ubSexTd1-frD7527z4SM9QQ/Interactive+Wallpaper+Sketch.png?format=2500w)
+## Process:
+[![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621178942251-UXYIJD6A8KLBAUXSPWQY/ke17ZwdGBToddI8pDm48kKJYfJORgGXfFPsdfAT4r7FZw-zPPgdn4jUwVcJE1ZvWQUxwkmyExglNqGp0IvTJZUJFbgE-7XRK3dMEBRBhUpxMF1NmYypl3b-p55nLNbMsfLmWBrwwL8inVA1zcb2APjJz0LQwqRNIvg5w0G8yMLQ/Screen+Shot+2021-05-16+at+8.28.32+AM.png?format=750w)](https://www.youtube.com/H_arDqnQs48)  
+  
+[![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621179023635-0CNOPVXCN26AYNP7YIV5/ke17ZwdGBToddI8pDm48kJAJvn4kFufXXaK2rRc9Rl1Zw-zPPgdn4jUwVcJE1ZvWQUxwkmyExglNqGp0IvTJZUJFbgE-7XRK3dMEBRBhUpzj41T9eVZUJlfM8ta9k6wpMHGThXvgzM2gUubxXfZ98gN_UQAUGEH2NyzB__CurCc/Screen+Shot+2021-05-16+at+8.30.10+AM.png?format=750w)](https://www.youtube.com/h2n8pAIKHE4)
+
+![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621177041999-DOUCVFHW6DWWOWMSU9IV/ke17ZwdGBToddI8pDm48kKXVfAt9LsIMjK8AwFWz8mV7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0k5fwC0WRNFJBIXiBeNI5fI78j0ts3A8z_ZgW0PCOxDSlJi3w2G5bqTleurr0wG3pA/IMG_2209.JPG?format=750w)  
+
+![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621177039248-9MEW0A0NQ2623B09PARG/ke17ZwdGBToddI8pDm48kKXVfAt9LsIMjK8AwFWz8mV7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0k5fwC0WRNFJBIXiBeNI5fI78j0ts3A8z_ZgW0PCOxDSlJi3w2G5bqTleurr0wG3pA/IMG_2213.JPG?format=750w)  
+
+![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621319558412-UQOXLY9L2LRXWD0TSSHK/ke17ZwdGBToddI8pDm48kK60W-ob1oA2Fm-j4E_9NQB7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0kD6Ec8Uq9YczfrzwR7e2Mh5VMMOxnTbph8FXiclivDQnof69TlCeE0rAhj6HUpXkw/IMG_2371.JPG?format=750w)  
+
+![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621177047023-MEYHZH1VGTB7VXXAYCX5/ke17ZwdGBToddI8pDm48kKXVfAt9LsIMjK8AwFWz8mV7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0k5fwC0WRNFJBIXiBeNI5fI78j0ts3A8z_ZgW0PCOxDSlJi3w2G5bqTleurr0wG3pA/IMG_2339.JPG?format=750w)
+
+![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621177054010-WXU7RZ0QKFB0DT1V37WG/ke17ZwdGBToddI8pDm48kK60W-ob1oA2Fm-j4E_9NQB7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0kD6Ec8Uq9YczfrzwR7e2Mh5VMMOxnTbph8FXiclivDQnof69TlCeE0rAhj6HUpXkw/IMG_2345.JPG?format=750w)  
+
+[![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621317128617-DVTIMWC3ZU75LHWUHEG5/ke17ZwdGBToddI8pDm48kPVZUm3jtfItkNHvjOC5jS9Zw-zPPgdn4jUwVcJE1ZvWQUxwkmyExglNqGp0IvTJZamWLI2zvYWH8K3-s_4yszcp2ryTI0HqTOaaUohrI8PIbIqNapiBsjr-IbOJ-m42NGGfRAoM-ro-Vfofu__afW4/Screen+Shot+2021-05-17+at+10.50.29+PM.png?format=750w)](https://www.youtube.com/watch?v=aEIRuVHrZTA&feature=youtu.be)  
+
+![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621185078153-1PBWUJ6G7GWSLVUVW7IK/ke17ZwdGBToddI8pDm48kLGzfeTj89fNjhxKf4CBKKB7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z5QPOohDIaIeljMHgDF5CVlOqpeNLcJ80NK65_fV7S1UcTZBUdlJAIoZHlcWjl2BZ5jMJDXPRLjJkiAgjkQri3ubSexTd1-frD7527z4SM9QQ/Interactive+Wallpaper+Sketch.png?format=750w)  
+
+[![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621316951506-HE8ATE35G5X2V9BEDF98/ke17ZwdGBToddI8pDm48kKAsl0c4h8F3alyo1BNTV3dZw-zPPgdn4jUwVcJE1ZvWQUxwkmyExglNqGp0IvTJZamWLI2zvYWH8K3-s_4yszcp2ryTI0HqTOaaUohrI8PIhzGCy48RLX0X2ySLYNkAfSS-JvOT_ttlQUP7ZBoi0f0/Screen+Shot+2021-05-17+at+10.48.43+PM.png?format=500w)](https://www.youtube.com/watch?v=SqGvDuY4sz4)
+[![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621317128617-DVTIMWC3ZU75LHWUHEG5/ke17ZwdGBToddI8pDm48kPVZUm3jtfItkNHvjOC5jS9Zw-zPPgdn4jUwVcJE1ZvWQUxwkmyExglNqGp0IvTJZamWLI2zvYWH8K3-s_4yszcp2ryTI0HqTOaaUohrI8PIbIqNapiBsjr-IbOJ-m42NGGfRAoM-ro-Vfofu__afW4/Screen+Shot+2021-05-17+at+10.50.29+PM.png?format=500w)](https://www.youtube.com/watch?v=Mq1cw3QRAaY)  
+
+![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621316493007-R3E6YJLJVWL7H7PGUS3I/ke17ZwdGBToddI8pDm48kDHPSfPanjkWqhH6pl6g5ph7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0mwONMR1ELp49Lyc52iWr5dNb1QJw9casjKdtTg1_-y4jz4ptJBmI9gQmbjSQnNGng/IMG_2380.jpg?format=750w)  
+![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621316435014-KQ99LG3127R7ZDGEP6CD/ke17ZwdGBToddI8pDm48kDHPSfPanjkWqhH6pl6g5ph7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0mwONMR1ELp49Lyc52iWr5dNb1QJw9casjKdtTg1_-y4jz4ptJBmI9gQmbjSQnNGng/IMG_2378.JPG?format=750w)  
+![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621316502504-2EHW92G00LL7P4Z10V5V/ke17ZwdGBToddI8pDm48kDHPSfPanjkWqhH6pl6g5ph7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0mwONMR1ELp49Lyc52iWr5dNb1QJw9casjKdtTg1_-y4jz4ptJBmI9gQmbjSQnNGng/IMG_2385.jpg?format=750w)  
+
+![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621319512588-7MQ6C7H8J459Y9E2TAM2/ke17ZwdGBToddI8pDm48kK60W-ob1oA2Fm-j4E_9NQB7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0kD6Ec8Uq9YczfrzwR7e2Mh5VMMOxnTbph8FXiclivDQnof69TlCeE0rAhj6HUpXkw/IMG_2393.JPG?format=750w)  
+
+[![](https://images.squarespace-cdn.com/content/v1/5c4815f1da02bc7fba53a3f3/1621317166554-MZ9QMEUVGJ4SQVFUSFPZ/ke17ZwdGBToddI8pDm48kA19RyzzBLTiAdxICwx0C5FZw-zPPgdn4jUwVcJE1ZvWQUxwkmyExglNqGp0IvTJZamWLI2zvYWH8K3-s_4yszcp2ryTI0HqTOaaUohrI8PIl-t5I3wgV9rzyywMwaDyIZpLx9KZo5UEEVSkRspqpM8/Screen+Shot+2021-05-17+at+10.51.40+PM.png?format=500w)](https://www.youtube.com/watch?v=5Nv4xvKRKXI)
