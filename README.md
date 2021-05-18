@@ -1,4 +1,7 @@
 # themesswevemade
+
+For a step by step analysis, read ![the project wiki](https://github.com/wilter27/themesswevemade/wiki).  
+
 ## An exploration of the reciprocal ecologies of my transgenerational curse.
 
 My intentions of this project center around the process of analyzing the subjective and experiential process of living, collecting, and neglecting for the sake of it from an anti-humanist, non-positivist perspective.  It analyzes the price of living on and tending to hallowed ground while making space for a generative and collaborative future.  The project aims to examine the shoal of the garage to retrieve meaning and liberate us from the weight of our ancestral relationships with excessive material accumulation.
